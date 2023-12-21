@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TSmith02
+- 👀 I’m interested in manga, anime, new knowlegde.
+- 🌱 I’m currently learning the basics of coding. 
+- 📫 How to reach me smiththomarae@gmail.com
